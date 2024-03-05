@@ -1,1 +1,1 @@
-Here I am creating a lightswitch with my new chapter
+Here I am creating a lightswitch with my new learning chapter
